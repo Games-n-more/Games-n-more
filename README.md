@@ -5,6 +5,12 @@ Nothing here, yet.
 4321hadao1234@gmail.com
 
 https://scratch.mit.edu/users/NotHaDaos
+
+https://games-n-more.github.io/
+
+https://www.youtube.com/@HaDaoItzme
+
+https://games-n-more.github.io/
 <!--
 If you can read this, hi!!!
 --!>
